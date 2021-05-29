@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AbhikC4
+- 👋 Hi, I’m @AbhikC4 aka abhik chakraborty
 - 👀 I’m interested in Photography, coding, programming, software testing, reading, writing
 - 🌱 I’m currently learning MCA in Kalyani University
 - 💞️ I’m looking to collaborate on any IT industry or IT field
