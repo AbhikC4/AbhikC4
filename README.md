@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AbhikC4 aka abhik chakraborty
 - 👀 I’m interested in Photography, coding, programming, software testing, reading, writing
-- 🌱 I’m currently learning MCA in Kalyani University
+- 🌱 I’m currently learning MCA
 - 💞️ I’m looking to collaborate on any IT industry or IT field
 - 📫 How to reach me .....yaa... my email address: bkavikrty@gmail.com... Feel free to reach me :))
 
